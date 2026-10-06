@@ -95,7 +95,7 @@ but they r just some days in any other days yes im looking for friends bc I only
 
 
 
-I’m 15 I’m pansexual I have amazing gf >//< I am srry if this README isn’t that good this is my first time doing this but anyway my fav character to wear is bee Ribbit smc Persephone I sometimes change the theme bc I sometimes get bored of it and there r times when I’m a lazy 
+I’m 15 I’m pansexual I have amazing gf >//< I am srry if this README isn’t that good this is my first time doing this but anyway my fav character to wear is bee Ribbit smc Persephone I sometimes change the theme bc I sometimes get bored of it and there r times when I’m to lazy to change it  bc I’m a lazy 
 bum
 
 <img width="1196" height="286" alt="IMG_1639" src="https://github.com/user-attachments/assets/66491d59-5936-4100-b798-4405e70e9581" />
